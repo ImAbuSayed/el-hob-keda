@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> حبيبي قلبي نار في الليل
+> عيونك تسحرني وتميل
+> شوقي يزيد ونور الدليل
+> تعالى نعيش حلم جميل
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
